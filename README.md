@@ -1,1 +1,1 @@
-https://korn-1983.github.io/rsschool-cv/cv
+https://korn-1983.github.io/rsschool-cv/
